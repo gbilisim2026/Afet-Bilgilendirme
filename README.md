@@ -1,0 +1,1 @@
+# Afet-Bilgilendirme-ve-Yard-mla-ma-Platformu
